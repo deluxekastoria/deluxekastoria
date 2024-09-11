@@ -8,6 +8,8 @@
 
 
 
+
+
 Welcome to Deluxe View - Kastoria apartment!
 
 The apartment with the unique & unobstructed view of the lake
@@ -15,6 +17,8 @@ The apartment with the unique & unobstructed view of the lake
 Deluxe View is a comfortable and luxurious 200 sq.m. apartment with 4 bedrooms and 2 bathrooms
 
 Capacity to accommodate up to 8 guests
+
+
 
 
 Κρατήσεις και Πληροφορίες / Reservations and Ιnformation
