@@ -1,7 +1,7 @@
-- Καλωσήρθατε στο Deluxe View - Kastoria apartment!
-- Το διαμέρισμά με την μοναδική & ανεμπόδιστη θέα στη λίμνη
-- Το Deluxe View είναι ένα άνετο και πολυτελές διαμέρισμα 200 τ.μ. με 4 υπνοδωμάτια και 2 λουτρά
-- Δυνατότητα φιλοξενίας έως 8 επισκεπτών
+Καλωσήρθατε στο Deluxe View - Kastoria apartment!
+Το διαμέρισμά με την μοναδική & ανεμπόδιστη θέα στη λίμνη
+Το Deluxe View είναι ένα άνετο και πολυτελές διαμέρισμα 200 τ.μ. με 4 υπνοδωμάτια και 2 λουτρά
+Δυνατότητα φιλοξενίας έως 8 επισκεπτών
 
 Welcome to Deluxe View - Kastoria apartment!
 The apartment with the unique & unobstructed view of the lake
